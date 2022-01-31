@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @marthattack, a 17 yo guy with no social life
+- 👋 Hi, I’m @marthattack, a 18 yo guy with no social life
 - 👀 I’m interested programming, electronic and engineering
 - 🌱 I’m currently learning too much things
 - 💞️ I’m looking to collaborate on small scale projects
